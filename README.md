@@ -1,2 +1,1 @@
-### Hi there 👋
-## this is bad-bitches' repo only club
+## this is bad-chica's repo only club
